@@ -66,7 +66,7 @@ Experienced **Sales Operations & Supply Chain Specialist** with over **11 years*
 
 ## 📈 Private Label & Category Leadership
 
-### Brand Growth Highlights:
+### International Brand Growth Highlights in Indian Market:
 - **TERRA®** (The Hain-Celestial, Canada): 43% market share  
 - **Sunkist®** (California): 22% market share  
 - **Bhujialalji®** (India): 36% market share  
