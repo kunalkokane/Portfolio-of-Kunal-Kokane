@@ -1,6 +1,6 @@
 # 🧾 Portfolio of Kunal Kokane  
 ## **(MBA – Batch of 2013)**  
-📍 Mumbai, India | ✉️ kunalkokane@gmail.com | [LinkedIn](https://www.linkedin.com/in/kunal-kokane)
+📍 Mumbai, India | ✉️ kunalkokane@gmail.com | [LinkedIn](https://www.linkedin.com/in/kunal-kokane) | https://docs.google.com/presentation/d/1sKhdnJKt4dGusrETtBbqNjkBwKGNfmASD4dBmJ0OzhA/edit?slide=id.g3435deda488_0_387#slide=id.g3435deda488_0_387
 
 ---
 
