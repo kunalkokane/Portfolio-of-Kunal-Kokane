@@ -2,7 +2,7 @@
 ## **(MBA – Batch of 2013)**  
 📍 Mumbai, India | ✉️ kunalkokane@gmail.com | [LinkedIn](https://www.linkedin.com/in/kunal-kokane) 
 ---
-  | Profile Link : https://shorturl.at/QZQFO
+📌 Profile Link : https://shorturl.at/QZQFO
 ---
 
 ## 👨‍💼 Profile Overview
